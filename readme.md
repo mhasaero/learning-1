@@ -1,3 +1,3 @@
 halo
 
-Nama saya Ferdianto panggilnya Ferdi.
+Nama saya Ferdianto panggilnya Ferdi

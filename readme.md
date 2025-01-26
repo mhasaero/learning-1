@@ -6,3 +6,5 @@ Nama saya Nicolaus Owen Marvell panggilnya Owen.
 
 Nama saya Ferdianto panggilnya Ferdi
 
+Halo aku Miran panggilnya ran
+

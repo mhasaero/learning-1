@@ -1,3 +1,1 @@
-halo
-
-Nama saya M. Ilham Syafik panggilnya syafik.
+Halo bang nama saya Darrell Satriano, panggil aja darrell

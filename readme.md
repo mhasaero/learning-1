@@ -1,3 +1,1 @@
-halo
-
-Nama saya Monica panggilnya mon.
+halloo aku Monica panggilnya mon.

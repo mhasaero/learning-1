@@ -1,1 +1,1 @@
-Halo, Nama saya Julio Syah Putra
+Halo, Nama saya Julio Syah Putra.

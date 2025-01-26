@@ -1,1 +1,0 @@
-Halo bang nama saya Darrell Satriano, panggil aja darrell

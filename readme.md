@@ -1,3 +1,1 @@
-halo
-
-Nama saya M. Ilham Syafik panggilnya syafik.
+Halo, Nama saya Julio Syah Putra

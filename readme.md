@@ -1,5 +1,7 @@
 halo
 
+Nama saya M. Rabyndra panggilnya Ello.
+
 Nama saya Affan Madley panggilnya affan.
 
 halloo aku Monica panggilnya mon.

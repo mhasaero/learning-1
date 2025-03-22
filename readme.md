@@ -16,3 +16,5 @@ Halo bang nama saya Darrell Satriano, panggil aja darrell
 
 halo nama saya leo
 
+Nama saya Nabila panggilnya Nabila atau Ayu.
+

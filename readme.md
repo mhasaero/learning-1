@@ -20,3 +20,6 @@ Nama saya Nabila panggilnya Nabila atau Ayu.
 
 Halo aku Miran panggilnya ran
 
+Nama saya Fannysia Arum Sari panggilannya Fanny.
+
+

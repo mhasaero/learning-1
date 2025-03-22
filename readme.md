@@ -1,4 +1,4 @@
-halo
+halo 
 
 Nama saya M. Rabyndra panggilnya Ello.
 
@@ -13,4 +13,6 @@ Nama saya Ferdianto panggilnya Ferdi
 Halo, Nama saya Julio Syah Putra.
 
 Halo bang nama saya Darrell Satriano, panggil aja darrell
+
+halo nama saya leo
 

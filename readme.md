@@ -18,3 +18,5 @@ halo nama saya leo
 
 Nama saya Nabila panggilnya Nabila atau Ayu.
 
+Halo aku Miran panggilnya ran
+

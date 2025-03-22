@@ -1,6 +1,13 @@
+# Project Learning-1 Front-end Dev GDGoC Unsri
+
+Hi!
 halo 
 
+Nama saya M. Ilham Syafik panggil aja Syafik
+
 Nama saya M. Rabyndra panggilnya Ello.
+
+Nama saya Nabil panggilannya king bil
 
 Nama saya Affan Madley panggilnya affan.
 
@@ -23,3 +30,6 @@ Halo aku Miran panggilnya ran
 Nama saya Fannysia Arum Sari panggilannya Fanny.
 
 Nama saya muhap
+
+Namaku Mohammad Rizky Sinaga, panggil aja Rizky!
+
